@@ -1,7 +1,7 @@
 # sharanjanagal.github.io
 
 
-Hi, dear reader! welcome to this space of nothingness, and bear with my misadventures of 21 cm cosmology and Machine Learning.... 
+Hi, dear reader! Welcome to this space of nothingness, and bear with my misadventures of 21 cm cosmology and Machine Learning.... 
 
 Yup, yup, some big words. Just six months ago, even I knew nothing about these two words, but here I am writing this discription of what it is..
 Before this, a small introduction to me. I am a seeker of knowledge, nothing else. Although, officially doing a Masters of Astronomy, I am master of none. But, a little jack of some trades. 
